@@ -1,2 +1,0 @@
-# Is-views
-BANKIS NET
